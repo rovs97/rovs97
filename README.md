@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @rovs97
+- 👀 I’m interested in digital scholarship, political identity, reactionary rhetoric, and Marxist critique.
+- 🌱 I’m currently learning how to write a prospectus.
+- 💞️ I’m looking to collaborate on making accessible radical histories.
+- 📫 crv18@pitt.edu
